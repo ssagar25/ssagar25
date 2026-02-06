@@ -27,7 +27,7 @@
 ## 📫 Contact Me
 
 - **Email:** [sagarmeghwar25@gmail.com](mailto:sagarmeghwar25@gmail.com)  
-- **LinkedIn:** [linkedin.com/in/ssagar2303](https://www.linkedin.com/in/ssagar2303)
+- **LinkedIn:** [linkedin.com/in/ssagar2303](https://www.linkedin.com/in/ssagar25)
 
 
 ⭐ *“Passionate about leveraging technology and business insights to solve real-world problems.”*  
